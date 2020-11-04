@@ -1,0 +1,2 @@
+# sosmed
+Aku hanya gabut
